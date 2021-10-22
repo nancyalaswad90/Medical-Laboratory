@@ -33,6 +33,9 @@
 
 ### حاسوب مستوى :
 
+========================
+
+
 - 🔷Quiz 1 :
 https://forms.gle/bwk5mWbom4RLp8JX6
 
@@ -57,3 +60,44 @@ https://forms.gle/o9Cmt8T28edTpXn79
 
 - 🔷Quiz 6 :
 https://forms.gle/otn4TZ7Z5JzHym6q6
+
+
+
+
+
+### انجليزي مستوى :
+
+========================
+
+
+
+
+- 🔷 Quiz 1 :
+https://forms.gle/dtt5xdjvYyUA7jGY6
+
+
+- 🔷 Quiz 2 :
+https://forms.gle/B427sHE8aGESCzry9
+
+
+- 🔷 Quiz 3 :
+https://forms.gle/RH2oDexqSPf543z7A
+
+
+- 🔷 Quiz 4 :
+https://forms.gle/NtZWRvA5znq2MV998
+
+
+- 🔷 Quiz 5 :
+https://forms.gle/teKkTY1ungZ4kFsa6
+
+
+- 🔷 Quiz 6 :
+https://forms.gle/M1rZcU1Ft3um7TCk6
+
+
+
+- 🔷 Quiz 7 :
+https://forms.gle/5Qe7mwzkC24ZSUa36
+
+
