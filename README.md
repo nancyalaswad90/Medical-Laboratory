@@ -31,16 +31,29 @@
 > ## نماذج امتحانات المستوى 
 > .
 
-### حاسوب مستوى : 
-🔷Quiz 1 :
+### حاسوب مستوى :
+
+- 🔷Quiz 1 :
 https://forms.gle/bwk5mWbom4RLp8JX6
-🔷Quiz 2 :
+
+
+- 🔷Quiz 2 :
 https://forms.gle/9veLrYzLQRiZR5QZ7
-🔷Quiz 3 :
+
+
+-🔷Quiz 3 :
 https://forms.gle/MBJtSkTdSjZRsr5x9
-🔷Quiz 4 :
+
+
+
+- 🔷Quiz 4 :
 https://forms.gle/zsQ6rRhVDzAHiKAt8
-🔷Quiz 5 :
+
+
+-🔷Quiz 5 :
 https://forms.gle/o9Cmt8T28edTpXn79
-🔷Quiz 6 :
+
+
+
+- 🔷Quiz 6 :
 https://forms.gle/otn4TZ7Z5JzHym6q6
