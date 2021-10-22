@@ -73,6 +73,7 @@ https://forms.gle/otn4TZ7Z5JzHym6q6
 
 
 
+.
 
 
 ### انجليزي مستوى :
@@ -111,3 +112,49 @@ https://forms.gle/M1rZcU1Ft3um7TCk6
 https://forms.gle/5Qe7mwzkC24ZSUa36
 
 
+
+
+
+.
+
+
+### عربي  مستوى :
+
+========================
+
+
+
+- 🔷 Quiz 1 :
+https://forms.gle/D8ommTMoGgbPiF2ZA
+
+
+- 🔷 Quiz 2 :
+https://forms.gle/z1oBkoJiLK9EW8rr7
+
+
+- 🔷 Quiz 3 :
+https://forms.gle/hSqdnry1P1uaZf7S7
+
+
+- 🔷 Quiz 4 :
+https://forms.gle/ZRiLCSaJnXcwyswj8
+
+
+- 🔷 Quiz 5 :
+https://forms.gle/6ciYzuHmyS4z6M9o8
+
+
+- 🔷 Quiz 6 :
+https://forms.gle/Cc7hYAibX4MUmK9W6
+
+
+- 🔷 Quiz 7 :
+https://forms.gle/vVRNCPTJk3qMeGpu6
+
+
+- 🔷Quiz 8 :
+https://forms.gle/nxuxrtaeiHoGu9WB8
+
+
+
+.
