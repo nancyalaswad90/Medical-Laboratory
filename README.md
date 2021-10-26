@@ -158,3 +158,17 @@ https://forms.gle/nxuxrtaeiHoGu9WB8
 
 
 .
+
+
+### عربي  مستوى :
+
+========================
+
+
+- [المصطلحات الطبية](https://www.youtube.com/watch?v=XFWC-hQg33A&list=PLc6mXdyglTOQkyhNJol2WBO5_hHWSYSSW)
+
+
+- 
+
+
+
