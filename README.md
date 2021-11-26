@@ -192,4 +192,4 @@ https://forms.gle/nxuxrtaeiHoGu9WB8
 
 
 
-## [كتاب التشريح ](file:///C:/Users/USER/Downloads/General-Anatomy.pdf)
+## [كتاب التشريح ](https://drive.google.com/file/d/1K5DoT9llQHqCzvnB9AFjth9nVO9BApTg/view)
