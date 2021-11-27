@@ -1,3 +1,4 @@
+
 .
 
 
@@ -8,6 +9,7 @@
 
 ![IMG_20211019_145556](https://user-images.githubusercontent.com/36210723/138141226-504bae8b-4f8f-44bb-912a-2561659b1d5d.jpg)
 
+.
 
 =======================
 
@@ -21,6 +23,13 @@
 
 
 
+
+.
+
+###  Mid Exams 
+
+
+> ![Lab Exam](https://user-images.githubusercontent.com/36210723/143722053-3651ffc8-1923-4b36-8444-1932a0f54577.png)
 
 ###  Biochemistry
 
