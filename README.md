@@ -7,8 +7,20 @@
 
 
 
+.
 
-![IMG_20211019_145556](https://user-images.githubusercontent.com/36210723/138141226-504bae8b-4f8f-44bb-912a-2561659b1d5d.jpg)
+
+> ## First Term (( 10/2023 )) 
+
+
+
+=========================================
+
+
+.
+
+<img width="1006" alt="collage" src="https://github.com/nancyalaswad90/Medical-Laboratory/assets/36210723/4ac9f4b6-a7e2-4609-b1d3-13415e7f63a6">
+
 
 .
 
