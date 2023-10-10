@@ -3,7 +3,7 @@
 
 
 
- # [Medical Laboratory](http://portal.auct.edu.jo/auct-web/pages/students/dashboard.xhtml) third [path site ](https://elearning.auct.edu.jo/moodle/my/)<img width="699" alt="collage" src="https://github.com/nancyalaswad90/Medical-Laboratory/assets/36210723/b80b24e0-3500-4d10-8174-8b56ad07e99d">
+ # [Medical Laboratory](http://portal.auct.edu.jo/auct-web/pages/students/dashboard.xhtml) third [path site ](https://elearning.auct.edu.jo/moodle/my/)
 
 
 
