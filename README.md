@@ -89,7 +89,7 @@
 
 
 
-## - [ Material for  -  كلية - مادة كيمياء تحليلية](https://docs.google.com/document/d/1zGyzwlKppjICO-bqO5a7jKlP8PlOCYqe1Ms2V-G3nV4/edit)
+## - [ Material for  -  كلية - مادة كيمياء تحليلية](https://docs.google.com/document/d/1zGyzwlKppjICO-bqO5a7jKlP8PlOCYqe1Ms2V-G3nV4/edit) &&& [شرح بالعربي](https://youtube.com/playlist?list=PLYCzNGLUClygzS9z85QQwd5bZb-ROuXqI&si=juE5jxtVdvvAbaLR)
 
 
 .
